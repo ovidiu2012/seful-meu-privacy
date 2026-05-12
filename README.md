@@ -1,1 +1,0 @@
-# seful-meu-privacy
